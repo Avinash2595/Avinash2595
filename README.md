@@ -1,0 +1,6 @@
+- 👋 Hi, I’m AVINASH
+- 👀 I’m interested in DATA STRUCTURES 
+- 🌱 I’m currently learning WEB DEVELOPMENTS
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me avinashbayappa2595@gmail.com
+- MOBILE NO:7093468628
